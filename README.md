@@ -1,2 +1,1 @@
-# gobuy
-PAY MRI CLIPS IG@MRICLIPS
+
